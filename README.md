@@ -1,1 +1,1 @@
-# -Important-Resources-for-Contest
+# Important-Resources-for-Contest
